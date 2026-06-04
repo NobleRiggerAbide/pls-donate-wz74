@@ -1,4 +1,4 @@
-#  
+#  Experience pls donate like never before with hidden pls donate Scripts, the #1 Script. Includes auto-sell and instant win for unbeatable performance.
 
 
 
